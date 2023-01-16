@@ -14,3 +14,6 @@ a collection of daily doodles :D, all art is free to see, not to use, DO NOT USE
 ![kura](https://user-images.githubusercontent.com/76719897/212552371-e40739e0-228e-40a7-9ae8-c8a47f1bd0ae.png)
 
 ![jail](https://user-images.githubusercontent.com/76719897/212553609-6bcef08c-767c-4389-b7dc-2b50bfbc57f7.png)
+
+![meaning](https://user-images.githubusercontent.com/76719897/212692549-5d80146a-6ec4-4b71-8159-31be78a91872.png)
+
